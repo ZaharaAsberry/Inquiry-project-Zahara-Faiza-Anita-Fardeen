@@ -1,1 +1,1 @@
-# Inquiry-project-Zahara-Faiza-Anita-Fardeen
+# Inquiry-project-Zahara-Faiza-Anita-fardee
